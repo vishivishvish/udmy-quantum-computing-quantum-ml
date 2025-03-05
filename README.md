@@ -6,7 +6,7 @@
 
 ***Notes by Vishnu Subramanian - AI Researcher & Instructor, BloomTech***
 
-***Wednesday, 02/26/2025 - Tuesday, 03/04/2025***
+***Wednesday, 02/26/2025 - Monday, 03/10/2025***
 
 ## ***Section 1: Introduction | 1. Introduction***
 
