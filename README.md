@@ -4,7 +4,7 @@
 
 **Kumaresan Ramanathan - CEO, Coroman Systems**
 
-***Notes by Vishnu Subramanian - AI/ML Computational Science Associate Manager - Accenture | AI Researcher & Instructor, BloomTech***
+***Notes by Vishnu Subramanian - AI/ML Computational Science Associate Manager, Accenture | AI Researcher & Instructor, BloomTech***
 
 ***Wednesday, 02/26/2025 - Monday, 03/24/2025***
 
