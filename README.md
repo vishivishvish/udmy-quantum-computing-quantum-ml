@@ -6,8 +6,6 @@
 
 ***Notes by Vishnu Subramanian***
 
-***Wednesday, 02/26/2025 - Monday, 03/24/2025***
-
 ## ***Section 1: Introduction | 1. Introduction***
 
 ***Notes Incoming!***
